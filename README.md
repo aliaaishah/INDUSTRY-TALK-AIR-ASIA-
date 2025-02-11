@@ -8,3 +8,5 @@ One of the key takeaways was AirAsia’s work culture, where employees, known as
 
 Additionally, the discussion covered the importance of soft skills, including teamwork, communication, and problem-solving, alongside technical expertise. The industry professionals also shared insights on career growth, work-life balance, and remote work strategies, making it clear that adaptability and continuous learning are crucial for success.
 
+
+[![Here's a poster that show the summary of the industrial talk: ](https://github.com/aliaaishah/INDUSTRY-TALK-AIR-ASIA-/blob/main/TIS%20Assignment%201-%20Poster.pdf)]()
